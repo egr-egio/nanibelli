@@ -6,7 +6,7 @@ nani belli
 
 Presentazione dei bellissimi 7 nani, che in realtà sono 8, 9 o quanti vuoi tu!
 
-**DOTTO**, l'unico con il nome sballato
+**DOTTO**, l'unico con il nome sballato... poveretto
 
 ![](nani/dotto.jpg)
 
