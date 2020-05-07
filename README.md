@@ -6,7 +6,15 @@ nani belli
 
 Presentazione dei bellissimi 7 nani
 
-**BRONTOLO**, il brontolone
+**DOTTO**, l'unico con il nome sballato
+
+![](nani/dotto.jpg)
+
+<br/>
+<br/>
+<br/>
+
+**BRONTOLO**, il cagacazzi
 
 ![](nani/brontolo.jpg)
 
@@ -14,13 +22,6 @@ Presentazione dei bellissimi 7 nani
 <br/>
 <br/>
 
-**DOTTO**, il dondolone
-
-![](nani/dotto.jpg)
-
-<br/>
-<br/>
-<br/>
 
 **FATTOLO** (non mi ricordo come si chiama)
 
