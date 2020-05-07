@@ -4,7 +4,7 @@ nani belli
 # i-nani
 
 
-Presentazione dei bellissimi 7 nani
+Presentazione dei bellissimi 7 nani, che in realtà sono 8, 9 o quanti vuoi tu!
 
 **DOTTO**, l'unico con il nome sballato
 
@@ -60,17 +60,27 @@ Presentazione dei bellissimi 7 nani
 ![](nani/eolo.jpg)
 
 <br/>
-
-e infine il nuovo arrivato...
-
-<br/>
 <br/>
 <br/>
 
-Il buonissimo **FRUTTOLO**
+Il nuovo arrivato, il buonissimo **FRUTTOLO**
 
 ![](nani/fruttolo.jpg)
 
+<br/>
+<br/>
+<br/>
+
+E in fine, il migliore di tutti...
+
+<br/>
+
+**MONGOLO** <3
+
+![](nani/brontolo.jpg)
+
+
+<br/>
 <br/>
 <br/>
 <br/><br/>
