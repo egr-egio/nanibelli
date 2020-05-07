@@ -10,37 +10,73 @@ Presentazione dei bellissimi 7 nani
 
 ![](nani/brontolo.jpg)
 
+<br/>
+<br/>
+<br/>
 
 **DOTTO**, il dondolone
 
 ![](nani/dotto.jpg)
 
+<br/>
+<br/>
+<br/>
+
 **FATTOLO** (non mi ricordo come si chiama)
 
 ![](nani/fattolo.jpg)
+
+<br/>
+<br/>
+<br/>
 
 **MAMMOLO**, 69 come la mamma di nic
 
 ![](nani/mammolo69.jpg)
 
+<br/>
+<br/>
+<br/>
+
 **GIGOLO'**
 
 ![](nani/Gongolo.png)
+
+<br/>
+<br/>
+<br/>
 
 **PISOLO**, il fattone che dorme
 
 ![](nani/pisolo.jpg)
 
+<br/>
+<br/>
+<br/>
+
 **EOLO**, che non prende un cazzo
 
 ![](nani/eolo.jpg)
 
+<br/>
 
-e infine il nuovo arrivato
+e infine il nuovo arrivato...
+
+<br/>
+<br/>
+<br/>
 
 Il buonissimo **FRUTTOLO**
 
 ![](nani/fruttolo.jpg)
+
+<br/>
+<br/>
+<br/><br/>
+<br/>
+<br/><br/>
+<br/>
+<br/>
 
 
 **GRAZIE PER L'ATTENZIONE. CIAO.**
