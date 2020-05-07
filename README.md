@@ -47,7 +47,7 @@ Presentazione dei bellissimi 7 nani, che in realtà sono 8, 9 o quanti vuoi tu!
 <br/>
 <br/>
 
-**PISOLO**, il fattone che dorme
+**PISOLO**, il sottone che dorme
 
 ![](nani/pisolo.jpg)
 
