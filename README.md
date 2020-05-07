@@ -77,7 +77,7 @@ E in fine, il migliore di tutti...
 
 **MONGOLO** <3
 
-![](nani/brontolo.jpg)
+![](nani/mongolo.jpeg)
 
 
 <br/>
