@@ -54,7 +54,7 @@ Presentazione dei bellissimi 7 nani
 <br/>
 <br/>
 
-**EOLO**, che non prende un cazzo
+**EOLO**, che fa schifo e non prende
 
 ![](nani/eolo.jpg)
 
