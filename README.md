@@ -1,6 +1,4 @@
 # nanibelli
-nani belli
-
 # i-nani
 
 
@@ -14,7 +12,7 @@ Presentazione dei bellissimi 7 nani, che in realtà sono 8, 9 o quanti vuoi tu!
 <br/>
 <br/>
 
-**BRONTOLO**, il cagacazzi
+**BRONTOLO**, lo sfracassa maroni
 
 ![](nani/brontolo.jpg)
 
